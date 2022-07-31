@@ -14,6 +14,6 @@ They becomes a good chief when someone is hungry at house.
 By giving birth to the child they proves that they are so strong and can bear anything for their childrens.
 A great salute to the mothers who sacrifised their lifes for their childrens,family and society.
 We indians treat womens as goddess.</P>
-<img src="https://images.app.goo.gl/Bruwz54QnjzCJRL68">
+<img src="https://i.postimg.cc/mg6dkh1z/Screenshot-2022-07-31-16-31-33-46-680d03679600f7af0b4c700c6b270fe7-1.jpg">
 </body>
 </html>
